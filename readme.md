@@ -1,1 +1,1 @@
-# Mollys Marketplace
+# Grand Solutions Inc
